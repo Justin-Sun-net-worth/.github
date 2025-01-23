@@ -1,6 +1,8 @@
 # Justin Sun: From Cryptocurrency Pioneer to Art Collector
 
 Justin Sun became a popular name during the Sotheby’s New York auction on November 20, 2024, as he flaunted his billion-dollar net worth by buying a controversial art piece six times its estimated price.
+Get More https://rb.gy/u71f4o
+https://rb.gy/lwipgn
 
 ## Early Life and Education
 Born and raised in China, Justin Sun began his professional journey as Ripple Labs’ chief representative and adviser. He majored in history at Peking University. Later, after moving to the United States, Sun attended the University of Pennsylvania, where he developed an interest in cryptocurrency. Using his savings, he invested in Bitcoin and soon established his blockchain-based platform, TRON. [DDG Sister Tee Tee Aries](https://thealliancerockband.com/ddg-sister-tee-tee-aries/)
